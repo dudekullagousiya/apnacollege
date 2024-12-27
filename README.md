@@ -1,2 +1,2 @@
 # apnacollege
-Author -gousiya
+Author -dudekula gousiya
